@@ -50,7 +50,7 @@ Aqui estão alguns dos trabalhos que refletem minha jornada acadêmica e prátic
 
 <div align="center">
   
-
+```https://www.linkedin.com/in/adrian-filipe-2aa826358/ ```
 
 ---
 
